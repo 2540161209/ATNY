@@ -1,2 +1,4 @@
-# ATNY
-I am Chinese
+# 黎明工作室
+一个充满创意的工作室
+官网：http://2540161209.3vcm.net/liming.html （黎明）
+免费软件！
